@@ -1,5 +1,8 @@
 <img width="1200" height="480" alt="Untitled237_20251126195805" src="https://github.com/user-attachments/assets/a120064b-73b8-4abd-b500-3de992248c12" />
 
+[𝑮𝒊𝒇𝒕𝒆𝒅 𝒃𝒚]
+
+
 
 ★ 𝑨𝒓𝒊, 𝑴𝒂𝒇𝒖, 𝑹𝒆𝒊 𝒐𝒓 𝒀𝒖𝒌𝒊
 
@@ -7,7 +10,11 @@
 
 
 
+᧔࿔᧓⋆₊‧°𐐪♡𐑂°₊⋆⑅˚₊
 
+✧𝑩𝒀𝑰; 
+
+★
 
 
 
